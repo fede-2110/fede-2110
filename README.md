@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @fede-2110
+- 👀 "Code is like humor. When you have to explain it, it's bad."
+- 📫 federico.s.rossi@gmail.com
